@@ -1,0 +1,1 @@
+Here is a ton of uniform polyhedra made in vZome
